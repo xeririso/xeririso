@@ -10,7 +10,7 @@ $${\color{#00c0ff}\text{◞ㅤㅤ“ㅤㅤ𐑫o𐑚eᥒteㅤㅤdeoㅤ,ㅤ𐑚u�
 
 $${\color{#0097fd}\text{ㅤㅤcㅤ+ㅤhㅤencㅤ,ㅤ18+ㅤiwec.ㅤofftabㅤmostlyㅤㅤ⣴}}$$
 
-$${\color{#00c0ff}\text{ㅤ.ㅤstevenㅤnㅤjosephㅤstoneㅤfamilialㅤyume,ㅤ(myㅤbrotherㅤandㅤfatherㅤ( ´ ▽ ` ) )ㅤ}}$$
+$${\color{#00c0ff}\text{ㅤ.ㅤstevenㅤnㅤjosephㅤstoneㅤfamilialㅤyume,ㅤ(myㅤbrotherㅤandㅤfather!)ㅤ}}$$
 
 <p align="center">
 
