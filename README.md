@@ -2,6 +2,9 @@
 
 <p align="center">
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.sh/github.com/xeririso/xeririso.svg?style=plastic&label=(%C2%B4%EF%BD%A5%E2%A9%8A%EF%BD%A5%60)%EA%9C%84%EA%9C%86%EA%9C%84%EA%9C%86&extraCount=233&color=ffffff&labelColor=025eff)](https://hits.sh/github.com/xeririso/xeririso/)
+
+<p align="center">
 
 $${\color{#00c0ff}\text{◞ㅤㅤ“ㅤㅤ𐑫o𐑚eᥒteㅤㅤdeoㅤ,ㅤ𐑚uᥴeteㅤㅤste𐑚𐑚𐓠e.ㅤㅤ”ㅤㅤ𝜗𝜚ྀི}}$$
 
